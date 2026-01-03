@@ -6,3 +6,5 @@ Here's some information about me:
 
 - Personality Typology: ENTJ 3w2 sp/so 351 RCOAI
 - Interests: Technology, Space, Philosophy, Video Games, Writing, Reading
+
+Discord: https://discord.com/users/1176237624223092828
