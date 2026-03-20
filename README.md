@@ -8,3 +8,7 @@ Here's some information about me:
 - Interests: Technology, Space, Philosophy, Video Games, Writing, Reading
 
 Here's my Discord: [solstern](https://discord.com/users/1176237624223092828)
+
+more info about me:
+[website](https://www.sabrylinzero.site/)
+[pronouns](https://pronouns.cc/@solstern)
