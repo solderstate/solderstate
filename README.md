@@ -7,7 +7,7 @@ Here's some information about me:
 - Personality Typology: INTJ 5w4 sp/sx 594 RLOAI
 - Interests: Technology, Space, Philosophy, Video Games, Writing, Reading
 
-Here's my Discord: [solstern](https://discord.com/users/1176237624223092828)
+Here's my [Discord](https://discord.com/users/1176237624223092828).
 
 more info about me:
 [website](https://www.sabrylinzero.site/)
