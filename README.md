@@ -11,4 +11,4 @@ Here's my [Discord](https://discord.com/users/1176237624223092828)!
 
 More info about me:
 [website](https://www.sabrylinzero.site/)
-[pronouns](https://pronouns.cc/@solstern)
+[pronouns](https://pronouns.cc/@SunsideRatio)
