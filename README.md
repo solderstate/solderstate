@@ -4,7 +4,7 @@ Hi! I'm Haru, a rookie developer currently learning and gaining mastery of codin
 
 Here's some information about me:
 
-- Personality Typology: INTJ 5w4 sp/sx 514 RLOAI
+- Personality Typology: INTJ 5w4 sx/sp 514 RLOAI
 - Interests: Technology, Space, Philosophy, Video Games, Writing, Reading
 
 Here's my [Discord](https://discord.com/users/1176237624223092828)!
